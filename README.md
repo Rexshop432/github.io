@@ -1,2 +1,0 @@
-# github.io
-LOJA DE CONTAS MINECRAFT
